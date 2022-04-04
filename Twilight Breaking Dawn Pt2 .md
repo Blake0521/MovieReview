@@ -1,2 +1,3 @@
 Movie:  Twilight Breaking Dawn Pt2
 Review: In Twilight Breaking Dawn Pt2, shows the effects that Bella had from having her baby Ronesme in part1. In part 1 bella had a baby that was half  vampre from her husband and half human from herself. This raises conflict i part 2 between the the evil vampires becuase they look at the daughter as a threat to Volutri being that she has a special gift. They then meet in the snowy mountains, edwards crew virsus the voltri crew. Alice then begins to let out a vision of a big cruel war that leaves multiple main characters dead.
+![image](https://user-images.githubusercontent.com/102754029/161594019-d0e75efd-7cde-4806-a05a-3c36cd1651b0.png)
